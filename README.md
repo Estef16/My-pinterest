@@ -1,1 +1,1 @@
-# My-pinterest
+https://www.pinterest.com/
